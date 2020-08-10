@@ -1,2 +1,24 @@
 # hello-world
-a starting point
+trying to improve my coding skills.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+\
