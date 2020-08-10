@@ -1,3 +1,24 @@
 # hello-world
-a starting point
-python and ruby :)
+trying to improve my coding skills.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+\
